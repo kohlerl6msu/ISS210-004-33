@@ -7,7 +7,7 @@ SJImage1: https://www.pinterest.ca/pin/408772103654309571/
 SJImage2: https://www.youtube.com/watch?v=uy-VZHqwWNM
 SJImage3: https://bloody-disgusting.com/editorials/3601617/evolution-undead-brief-history-zombies-horror/
 SJImage4: https://stock.adobe.com/search?k=economic+justice 
-SJImage5: https://www.jamesgmartin.center/2018/08/social-justice-is-overrunning-the-university-of-texas/
+SJImage5: https://i2.cdn.cnn.com/cnnnext/dam/assets/140310200119-orig-jr-brain-on-weed-horizontal-large-gallery.jpg (Andrew)
 SJImage6: https://www.facebook.com/groups/1016906918423966/ 
 Zombies in Revolt: The Violent Revolution of American Cinematic Monsters; DOI: 10.15291/sic/2.4.lc.2 
 Sources:
