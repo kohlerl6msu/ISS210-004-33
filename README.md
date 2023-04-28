@@ -21,5 +21,7 @@ https://adai.uw.edu/pubs/pdf/2017mjanxiety.pdf. (Andrew J)
 https://www.cdc.gov/marijuana/health-effects/chronic-pain.html. (Andrew J)
 https://www.ncbi.nlm.nih.gov/books/NBK425767/. (Andrew J)
 https://publications.sciences.ucf.edu/cannabis/index.php/Cannabis/article/download/130/69.(Andrew J)
-
-
+https://pubmed.ncbi.nlm.nih.gov/20805210/ (Brennan P)
+https://pubmed.ncbi.nlm.nih.gov/22791906/ (Brennan P)
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.enjoypleasantrees.com%2Fmi%2Feast-lansing%2F&psig=AOvVaw3k75PlmQCvYUHsdksqLnWn&ust=1682797519487000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCOiV4rSrzf4CFQAAAAAdAAAAABAL (Brennan P)
+https://www.mdpi.com/1648-9144/55/9/525 (Brennan P)
