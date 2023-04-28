@@ -12,3 +12,6 @@ SJImage6: https://www.facebook.com/groups/1016906918423966/ 
 Zombies in Revolt: The Violent Revolution of American Cinematic Monsters; DOI: 10.15291/sic/2.4.lc.2 
 Sources:
 https://www.aclu.org/news/criminal-law-reform/a-tale-of-two-countries-racially-targeted-arrests-in-the-era-of-marijuana-reform (Luke K)
+https://publications.sciences.ucf.edu/cannabis/index.php/Cannabis/article/download/130/69. (Andrew J)
+https://www.cureus.com/articles/100323-michigan-marijuana-legalization-correlations-among-cannabis-use-mental-health-and-other-factors.pdf.(Andrew J)
+
