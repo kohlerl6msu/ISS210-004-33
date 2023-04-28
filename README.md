@@ -15,6 +15,6 @@ https://www.aclu.org/news/criminal-law-reform/a-tale-of-two-countries-racially-t
 https://publications.sciences.ucf.edu/cannabis/index.php/Cannabis/article/download/130/69. (Andrew J)
 https://www.cureus.com/articles/100323-michigan-marijuana-legalization-correlations-among-cannabis-use-mental-health-and-other-factors.pdf (Andrew J)
 https://thesis.honors.olemiss.edu/1490/1/THE%20ECONOMIC%20EFFECTS%20OF%20NATIONAL%20MARIJUANA%20LEGALIZATION.pdf (Kevin B)
-https://www.pewresearch.org/short-reads/2019/11/14/americans-support-marijuana-legalization/(Max P)
-https://www.investopedia.com/articles/insights/110916/economic-benefits-legalizing-weed.asp(Max P)
+https://www.pewresearch.org/short-reads/2019/11/14/americans-support-marijuana-legalization/ (Max P)
+https://www.investopedia.com/articles/insights/110916/economic-benefits-legalizing-weed.asp (Max P)
 
