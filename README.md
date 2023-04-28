@@ -17,4 +17,9 @@ https://www.cureus.com/articles/100323-michigan-marijuana-legalization-correlati
 https://thesis.honors.olemiss.edu/1490/1/THE%20ECONOMIC%20EFFECTS%20OF%20NATIONAL%20MARIJUANA%20LEGALIZATION.pdf (Kevin B)
 https://www.pewresearch.org/short-reads/2019/11/14/americans-support-marijuana-legalization/ (Max P)                 
 https://www.investopedia.com/articles/insights/110916/economic-benefits-legalizing-weed.asp (Max P)
+https://adai.uw.edu/pubs/pdf/2017mjanxiety.pdf. (Andrew J)
+https://www.cdc.gov/marijuana/health-effects/chronic-pain.html. (Andrew J)
+https://www.ncbi.nlm.nih.gov/books/NBK425767/. (Andrew J)
+https://publications.sciences.ucf.edu/cannabis/index.php/Cannabis/article/download/130/69.(Andrew J)
+
 
